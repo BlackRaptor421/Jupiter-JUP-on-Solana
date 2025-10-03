@@ -3,4 +3,4 @@ I see **Jupiter (JUP)** on Solana not just as another altcoin, but as the backbo
 гггггггггггг
 гггггггггггг
 гггггггггггг
-ггггггггггг
+гггггггггггг
